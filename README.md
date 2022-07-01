@@ -1,0 +1,1 @@
+# iamkurtgoz.github.io
